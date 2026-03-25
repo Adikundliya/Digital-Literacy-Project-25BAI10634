@@ -1,4 +1,4 @@
-##### This infographic serves as a comprehensive visual guide to digital literacy for students, presented in a bold dark-themed design with neon accents. It is organized into four key sections.
+##### This infographic is a visual guide that helps students understand and navigate the digital world effectively. It is organized into four key sections.
 
 ##### 
 
